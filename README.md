@@ -31,7 +31,7 @@ You can view or download the latest version of my resume here:
 
 ## 📫 Contact
 - **LinkedIn:** https://www.linkedin.com/in/venkatakrishnan-sampathkumar  
-- **Email:** *add your email here*  
+- **Email:** krissh.venki@gmail.com  
 - **Location:** India
 
 ---
